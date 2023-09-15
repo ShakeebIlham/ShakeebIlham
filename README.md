@@ -26,7 +26,7 @@ Let's code and innovate! 🌟
 
 Connect with me: 
 - [Email](mailto:shakeebelham@gmail.com) 
-- [LinkedIn]([https://www.linkedin.com/in/yourprofile](https://www.linkedin.com/in/shakeeb-ilham-71154a244))
+- [LinkedIn](https://www.linkedin.com/in/shakeeb-ilham-71154a244)
 
 
 
